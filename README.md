@@ -12,8 +12,4 @@
 
                 i  enjoy  doing  puzzles,  problem  solving ,  and  drawing. i  don't draw often, though. usually i draw for commissions . . 
                     i'm in many fandoms, the top 3 is vocaloid , lego monkie kid and fnaf. 
-                    i have a tq. ( ex;  the  foxx  jumped  overr  za  lazy  dog. ) sometimes  i  use  third-person. 
-                    
-                    more info ! : [ carrd ] , [ simplified ] , [ patreon ] 
-                    
-
+                    i have a tq. ( ex;  the  foxx  jumped  overr  za  lazy  dog. ) sometimes  i  use  third-person.              
